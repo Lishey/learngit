@@ -2,4 +2,4 @@ Stay hungry!
 
 Stay foolish!
 
-:blue_heart:
+:blue_heart::heart:
