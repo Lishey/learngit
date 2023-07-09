@@ -1,6 +1,4 @@
-Stay hungry!
-
-Stay foolish!
+Stay hungry!  
 
 :blue_heart::heart:
 
